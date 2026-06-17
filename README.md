@@ -1,0 +1,1 @@
+# Word-Meaning-Note-Book-PrivacyPolicy
